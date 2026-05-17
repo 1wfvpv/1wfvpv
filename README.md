@@ -6,5 +6,5 @@
 <p align=center> doubles can int freely/int w care but PLEASE don't talk about 007 or them romantically infront of me. i literally will not gaf if you do </p>
 <p align=center> friendly and nice if were close enough. i have a short temper thats all - amateur-ish writer/roleplayer </p>
 
-<p align=center> https://pristmaticburger.atabook.org sign my ata </p>
+<p align=center> https://uw8k9.atabook.org sign ata </p>
 </p>
